@@ -1,11 +1,16 @@
+# Lemon Thyme Curd
+## Pierrot
 
-Ingredients
-Juice and zest of two lemons
-1 tsp Fresh Thyme leaves
-50g Unsalted butter, cubed
-100g Golden caster sugar
-2 Large free range eggs, beaten
-Preparation
+
+![image.jpeg](http://www.foodista.com/sites/default/files/styles/recype/public/5CB6AD65-FC6E-4C50-9AE6-DC656D1F6842.jpeg) ![pierre.jpg](http://www.ipgp.fr/sites/all/scripts/ldapjpegphoto.php?email=burckel@ipgp.fr)
+
+- Ingredients
+ -Juice and zest of two lemons
+ -1 tsp Fresh Thyme leaves
+ -50g Unsalted butter, cubed
+ -100g Golden caster sugar
+ -2 Large free range eggs, beaten
+- Preparation
 1
 Heat the lemon juice, zest, sugar, butter and thyme in a Bain-Marie. Stir frequently until the butter has melted.
 2
